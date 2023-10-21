@@ -1,3 +1,3 @@
 # Israelis-Supporters
 
-Please update
+Please help update
